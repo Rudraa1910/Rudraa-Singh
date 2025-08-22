@@ -1,2 +1,2 @@
 # Rudraa-Singh
-First yaer student at COER University, Roorke(UK)
+First year student at COER University, Roorke(UK)
